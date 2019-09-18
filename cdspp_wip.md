@@ -1,15 +1,12 @@
 # Votar no CDS faz sentido!
 
-Há quase dois anos, o CDS lançou um processo muito alargado e participado para preparar um programa eleitoral arrojado, com rasgo
-e ambição para o nosso país. Para o Portugal de hoje, certamente, mas sempre com os olhos no Portugal que hoje queremos construir para amanhã, para os nossos filhos e netos. 
+Há quase dois anos, o CDS lançou um processo muito alargado e participado para preparar um programa eleitoral arrojado, com rasgo e ambição para o nosso país. Para o Portugal de hoje, certamente, mas sempre com os olhos no Portugal que hoje queremos construir para amanhã, para os nossos filhos e netos. 
 
-Foi assim que, em novembro de 2017, com a coordenação de três independentes – a Raquel Abecasis, o Sebastião Lencastre e o Pedro
-Mexia, se lançou o grande projeto do “Ouvir Portugal”, na rua, com muitas contribuições que nos chegaram por mail, redes sociais e cartas, e no ciclo de conferências, uma por cada distrito e Regiões Autónomas.
+Foi assim que, em novembro de 2017, com a coordenação de três independentes – a Raquel Abecasis, o Sebastião Lencastre e o Pedro Mexia, se lançou o grande projeto do “Ouvir Portugal”, na rua, com muitas contribuições que nos chegaram por mail, redes sociais e cartas, e no ciclo de conferências, uma por cada distrito e Regiões Autónomas.
 
 Em paralelo, o nosso Gabinete de Estudos, dirigido pelo Diogo Feio, multiplicou-se em iniciativas onde militantes e independentes em estreita ligação com os nossos deputados, aprofundaram muitas áreas temáticas que em muitos casos ajudaram a uma ação de excelência do nosso grupo parlamentar. 
 
-Do congresso do CDS de Lamego, em março de 2018, saiu o grupo Portugal@comfuturo, coordenado pelo Adolfo Mesquita Nunes, e que
-integrou seis militantes – Mariana França Gouveia, João Moreira Pinto, Ana Rita Bessa, Graça Canto Moniz e Jorge Teixeira - e dois independentes – Nadia Piazza e Pedro Mexia que, juntamente com dezenas de grupos de trabalho, ficou com a incumbência de recolher todos os contributos do Grupo Parlamentar, do Gabinete de Estudos, do Ouvir Portugal e das nossas estruturas distritais, de os selecionar, organizar e preparar um grande programa eleitoral.
+Do congresso do CDS de Lamego, em março de 2018, saiu o grupo Portugal@comfuturo, coordenado pelo Adolfo Mesquita Nunes, e que integrou seis militantes – Mariana França Gouveia, João Moreira Pinto, Ana Rita Bessa, Graça Canto Moniz e Jorge Teixeira - e dois independentes – Nadia Piazza e Pedro Mexia que, juntamente com dezenas de grupos de trabalho, ficou com a incumbência de recolher todos os contributos do Grupo Parlamentar, do Gabinete de Estudos, do Ouvir Portugal e das nossas estruturas distritais, de os selecionar, organizar e preparar um grande programa eleitoral.
 
 É esse programa que aqui surge.
 
